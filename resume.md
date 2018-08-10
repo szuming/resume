@@ -1,4 +1,5 @@
 ﻿　　　　　　　　　　　　　　　　　　　　　　　　　曾建明
+　　　　　　　　　　　　　　　　　　　　　　　　　
 　　　　　　　　　　　　手机:13760254539 | 邮箱:ming_szu@qq.com | 微信:MingGrafield
 　　　　　　　　　　　　
 ## 教育背景
